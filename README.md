@@ -1,2 +1,2 @@
 # Hanni-s-repository
-My adorable cats!
+My cats are super adorable!
